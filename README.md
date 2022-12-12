@@ -7,3 +7,4 @@
 3. 星际争霸 刀锋女王: https://www.westnovel.com/sm/dfnw/20657.html 更夸张，译者估计六级都没过。需要很凑活地看看。
 4. 星际争霸 萨尔那加之影: https://pan.baidu.com/s/1aqXjgoGBEbRt63As-JQSOw 
 https://www.westnovel.com/Album/20814.html
+5. 星际争霸 天国之魔
